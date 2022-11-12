@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @aditya916716
-- 👀 I’m interested in ... progamming
+- 👀 I’m interested in ... programming 
 - 🌱 I’m currently learning ...bsc it
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...adityasahani6128@gmail.com
